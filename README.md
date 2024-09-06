@@ -19,8 +19,16 @@
 ![Izreza7](https://github.com/user-attachments/assets/c8c6956f-20ba-41d8-a1f5-d9e915f303ea)
 
 
+## Screenshotovi od mobilne app
 
 
+![IMG_0296](https://github.com/user-attachments/assets/d53bcbc4-7deb-4687-aba8-f74f6f660c03)
+![IMG_0295](https://github.com/user-attachments/assets/4596af28-3e6e-4822-b1dd-80368024e8a9)
+![IMG_0301](https://github.com/user-attachments/assets/6708c8b5-3127-4b14-b29a-403b0db1e049)
+![IMG_0300](https://github.com/user-attachments/assets/f014388f-cff0-4012-a31f-3d955320fbd2)
+![IMG_0299](https://github.com/user-attachments/assets/94ba8abb-342b-4790-b98f-2372a151ee86)
+![IMG_0298](https://github.com/user-attachments/assets/8bb8aefd-069f-445c-a3ab-a6881d448f2c)
+![IMG_0297](https://github.com/user-attachments/assets/dc1b5dd7-ead3-416b-a7b6-1b2b416f56cf)
 
 
 
